@@ -1,3 +1,5 @@
-- 👋 Hi, I’m @Iceyze
-- 👀 I’m interested in Web Development
-- 🌱 I’m currently learning LUA
+- Professional Tetris Exploiter
+- Cracked at crim
+- I make exploits for games and stuff
+- pls do not copy + paste
+- pls do not skid

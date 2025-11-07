@@ -1,5 +1,5 @@
-- Professional Tetris Exploiter
-- Cracked at crim
-- I make exploits for games and stuff
-- pls do not copy + paste
-- pls do not skid
+- Hardcore Tetris Exploiter
+- Cracked at badminton
+- Internet cafe drooge
+- Fan of the ultra violence
+- pls do not copy + paste as it reduces the resolution
